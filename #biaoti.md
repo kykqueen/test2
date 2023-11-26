@@ -2,8 +2,7 @@
 
 骆建佑，1997年6月26日出生于马来西亚槟城，新加坡羽毛球运动员.
 
-![骆建佑](https://bkimg.cdn.bcebos.com/pic/b64543a98226cffc1e1781d065505d90f603738dbc0a?x-bce-process=image/resize,m_lfit,w_536,limit_1/format,f_auto)
-
+![image](https://github.com/kykqueen/test2/assets/151831006/bd05882f-2aac-45ba-bade-4cdc3d3f3bdb)
 
 
 
